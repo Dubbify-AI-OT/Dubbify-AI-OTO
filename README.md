@@ -253,10 +253,6 @@ Get it now for <strong>only $17</strong>. After this special launch, you won’
 
 <img class="aligncenter size-full wp-image-124422" src="https://hudareview.com/wp-content/uploads/2025/03/Dubbify-AI-Review-Recap.png" alt="Dubbify-AI-Review-Recap" width="826" height="2487" />
 
-<strong>Click the button below to access the main sales page:</strong>
-
-<a href="https://warriorplus.com/o2/a/bcq3hqy/0" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external"><img class="aligncenter size-full wp-image-82591" src="https://hudareview.com/wp-content/uploads/2023/06/Button_Huda-e1686251993355.png" alt="Button_Huda" width="500" height="167" /></a>
-
 Add my code “<strong>DUBBIFYADMIN</strong>” to <strong>SAVE 30%</strong> on the entire funnel.
 <h3><span id="the_upgradesotos" class="ez-toc-section"></span>The upgrades/OTOs</h3>
 Give your <strong>Dubbify AI</strong> a boost with these cool upgrades. They build online stores easily and are more powerful. And guess what?
